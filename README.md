@@ -3,7 +3,7 @@ I upload shit that works.
 
 
 <details>
-<summary><b>Open that shii up!!</b></summary>
+<summary><b>C'mon bby, OPEN ME!!</b></summary>
 
 ![SpongeBob in da hood](https://i.ytimg.com/vi/VdBW1eKlrQE/hqdefault.jpg)
 </details>
